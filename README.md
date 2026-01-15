@@ -1,6 +1,6 @@
-## Hi there 
+## Hi there 🙋‍♂️
               
-I'm Jaisanth 🙋‍♂️
+I'm Jaisanth 
 
 Pronouns: He/Him
 
