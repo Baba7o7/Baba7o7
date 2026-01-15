@@ -1,5 +1,5 @@
 ## Hi there 🙋‍♂️
-              
+               
 I'm Jaisanth 
 
 Pronouns: He/Him
@@ -15,8 +15,8 @@ How to reach me: Instagram or Mail
 Fun fact:
 
 - Hobbies: Anime, Games, and Editing
--  My favorite anime is Jojo's Bizarre Adventure
--  My favorite game is Persona 5 Royal
+- My favorite anime is Jojo's Bizarre Adventure
+- My favorite game is Persona 5 Royal
               
   
 <!--
